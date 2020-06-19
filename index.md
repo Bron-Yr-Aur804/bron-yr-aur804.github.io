@@ -9,3 +9,5 @@ His suspects are often affluent members of high society who try to carefully cov
 * smokes cigars
 * drives a Peugeot 403
 * wears raincoat
+
+> There's something that bothers me
