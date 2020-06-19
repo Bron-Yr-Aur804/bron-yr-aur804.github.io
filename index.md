@@ -9,3 +9,7 @@ His suspects are often affluent members of high society who try to carefully cov
 * smokes cigars
 * drives a Peugeot 403
 * wears raincoat
+
+> THere's something that bothers me
+
+<img src="https://en.wikipedia.org/wiki/Peter_Falk#/media/File:Columbo_Peter_Falk_1973.JPG"/>
